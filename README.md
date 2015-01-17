@@ -1,3 +1,3 @@
 ANCIENT HISTORY
 
-Collection of logos I've designed and somehow created over the years.
+I've created some logos for law firms, restaurants, political campaigns, and other stuff. Here is a sample.
